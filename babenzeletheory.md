@@ -14,3 +14,5 @@ predictable rhythmic frameworks scaffold syncopated vocal phrases which cofuncti
 These phenomena extend from the endemic nature of neurological basal patterning which reflect the reward/expectation nature of autonomic processes involved in respiration and kinesthetic motor chains (breathing, walking, running, chewing). 
 Rhythmic tonal morphemes developed and transmitted during ecstatic states are then transmuted into vocal expression during non-ecstatic normal eudaemonic breathing states. 
 Studies in African Music by A M Jones (Oxford University Press)
+
+after this i try to start my own chinese.
