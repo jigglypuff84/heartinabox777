@@ -39,3 +39,18 @@ They all stripped naked and proceeded to draw on butcher paper with rectally cle
 The resultant miasma of hipster filth flooded the crowd and it dispersed much to the dismay of many a dedicated anarchist. 
 The following day Lord Barjack giver of hope, christened the third Friday of the month Fecal Art Day in commemoration of those unwitting trend chasers “who had the strength and resolve to ruin the roadblock with their peaceful pinching of poop”. 
 The heroes responded with an indifferent “meh…” and went on to use their newly awarded national endowment for the arts grant on bespoke woodsmen axes and secondhand flannel. 
+streets of Angarak.
+
+“Do you lads mean to take us on?!
+
+Do you have a bloody clue what you are saying or are you just playing to your people?”  He questioned the masked profanators of space and time.
+
+When they replied in an undefined of unintelligible mumbling and incoherent bleating his scepter struck a flexible steel rod against the reinforced floor creating a fracture in the outline of the doorway.
+
+“Oof!
+
+That hurt!
+
+Get back out the way or you will be next!” he admonished.
+
+Jinglehoke finally made his way through the fallen statue of  the mayor of Washington D.C. and shuffled his way
